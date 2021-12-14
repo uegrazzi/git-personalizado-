@@ -1,6 +1,6 @@
 ### Olá ! meu nome e Grazziely Silva
 
-- 🌱 aprendendo coisas novas
+- 🌱 Estou en processo de aprender
 - 😄 ela/dela
 
 <div align="center">
